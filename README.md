@@ -1,0 +1,2 @@
+# rizaofficial
+bibleblot trtanslate
